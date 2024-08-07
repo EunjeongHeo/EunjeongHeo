@@ -1,5 +1,10 @@
 ### Hi there 👋
 
+
+Notion
+https://www.notion.so/eunjeong0604/816506ced0034bc68cd30b21dc56f3e2?pvs=4
+
+
 <!--
 **EunjeongHeo/EunjeongHeo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
